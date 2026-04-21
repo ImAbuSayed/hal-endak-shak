@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا حبيبي قلبي دايما معاك
+> نار الشوق في روحي بتناديك
+> في سكون الليل أنا بهواك
+> كل نبضة فيا بتدور عليك
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
